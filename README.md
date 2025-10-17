@@ -1,3 +1,4 @@
 <img width="2160" height="1309" alt="3D_HKL-ER6-S3-V1 8 23" src="https://github.com/user-attachments/assets/a4809af9-deeb-45a6-8b15-7a338f52acab" />
 <img width="953" height="812" alt="PIN DEFINE" src="https://github.com/user-attachments/assets/a51c19c9-9d26-4b77-af53-ed42533c4c01" />
-![幻灯片1](https://github.com/user-attachments/assets/b8017ba7-385f-49c6-a70e-fc24fc2deaa7)
+
+![ER6-主图设计0](https://github.com/user-attachments/assets/7d8988b7-8e26-4587-adbb-218d97dd5f87)
