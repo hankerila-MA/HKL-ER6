@@ -6,4 +6,6 @@
 ![幻灯片3](https://github.com/user-attachments/assets/799b73fa-2f85-41b0-a09c-4a0c217609db)
 ![幻灯片5](https://github.com/user-attachments/assets/3983e681-a786-4da7-b605-0ffd198e5a58)
 
+<img width="1667" height="974" alt="ETH_WEB_control_page" src="https://github.com/user-attachments/assets/201c6a24-2bfb-46f5-80db-2e184b5eba69" />
+
 [www.aliexpress.com/store/1103673574](https://www.aliexpress.com/item/1005010063786087.html)
